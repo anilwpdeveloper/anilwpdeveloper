@@ -1,6 +1,7 @@
-👋 Hi, I’m Anil Vaza
+![anilvaza](https://github.com/anilwpdeveloper/anilwpdeveloper/assets/135543842/98a6c904-9ab8-4fdf-a6ac-345b56aecf50)
 
-I've been a WordPress and Shopify Expert Developer for the Past 6+ Years. 
+
+👩‍💻  About Me : I’m Anil Vaza , I've been a WordPress and Shopify Expert Developer for the Past 6+ Years. 
 
 I had my past experience working for a company where I have worked on the projects of some Multi-National companies and many of the local clients.
 
